@@ -1,0 +1,2 @@
+# Karyaby
+Karyaby Afghanistan 🇦🇫 
